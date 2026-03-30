@@ -4,7 +4,7 @@
 
 > *Building what others only imagine — AI systems, autonomous platforms, and tools that actually work.*
 
-📍 Hyderabad, India  ·  [LinkedIn](https://linkedin.com/in/pranay-chandra-wdp)  ·  [AnserTech](https://ansertech.com)
+📍 Hyderabad, India  ·  [LinkedIn](https://linkedin.com/in/pranay-chandra-wdp)  ·  [AnserTech](https://ansertech.com)  ·  [Portfolio](https://pranaychandra.dev)
 
 ---
 
